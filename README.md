@@ -20,3 +20,16 @@
 >C'était Liége contre Anderlecht. Liége a perdu 3-0. *Lucette etait toute contente car son club preferee avait gagné.
 
 C'était alors qu'Hector demanda une sucette à Ginette, la soeur de Lucette. Elle lui en donna une avec le sourire tel kangourou en renault Kangoo.
+
+
+Un vampire hemophile vegan cyborg existant dans la plus grande des maison
+dans un monde remplis de poneys arc en ciel volant , marchant utilisant la magie
+le vampire hemophile n'aime pas ce monde plus précisément :
+- Les poneys 
+- Les conneries
+- Les magiciens 
+	- les magiciens roux
+	- les magiciens cyborgues
+	- les magiciens qui font pas de magie
+
+## La suite prochainement

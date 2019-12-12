@@ -1,1 +1,3 @@
 # L'histoire de la patate qui n'a pas la patate
+
+Mais son pote le presse-purée est venu frapper à sa porte...

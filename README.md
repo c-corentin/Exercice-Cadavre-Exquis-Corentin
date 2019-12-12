@@ -39,4 +39,9 @@ le vampire hemophile n'aime pas ce monde plus précisément :
 	- les magiciens cyborgues
 	- les magiciens qui font pas de magie
 
+
+- il y a environ 800 sortes de bières brassées en Belgique.
+- Les Belges consomment en moyenne 100 litres de bière par personne par an.
+- La première academie de la bière a ouvert à Herk-de-Stad, dans la province du Limbourg, en 1999.
+
 ## La suite prochainement

@@ -10,3 +10,8 @@
 
        	**UNE ENORME** Tartiflette, la pauvre petite patate rêvait de finir dans se plat digne de son pays et tellement délicieux ! 
        	Le chef cuisto _Angelo_ préférait faire des pizzas, mais il ferait tout pour sa patate.
+
+
+>Tous ça pour un match de **foot**! il avait passé sa soirée à boire devant le bar de mamy *lucette*. 
+
+>*Lucette* lui distribue toujours des sucettes.

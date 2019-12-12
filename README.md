@@ -39,4 +39,8 @@ le vampire hemophile n'aime pas ce monde plus précisément :
 	- les magiciens cyborgues
 	- les magiciens qui font pas de magie
 
+Lucette était en fait une cousine éloignée du * vampire * et elle ignorait que celui-ci avait des vue sur la patate.
+Mais devenue miss tartiflette, la patate n'était pas interessée par lui.
+
+
 ## La suite prochainement

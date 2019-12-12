@@ -40,3 +40,4 @@ le vampire hemophile n'aime pas ce monde plus précisément :
 	- les magiciens qui font pas de magie
 
 ## La suite prochainement
+* spoiler une grande bataille entre le vampire hemophile vegan cyborg et l'ultimaPatate qui veut sauver toute les pomme de terre de se faire sauter ou frire par les ignoble vegan de plus en plus nombreux *

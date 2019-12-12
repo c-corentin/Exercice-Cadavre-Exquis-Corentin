@@ -8,3 +8,5 @@
 
 # Yes, les Capucins gagneront.
 
+       	**UNE ENORME** Tartiflette, la pauvre petite patate rêvait de finir dans se plat digne de son pays et tellement délicieux ! 
+       	Le chef cuisto _Angelo_ préférait faire des pizzas, mais il ferait tout pour sa patate.

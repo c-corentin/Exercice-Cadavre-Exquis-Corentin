@@ -18,3 +18,5 @@
 >*Lucette* lui distribue toujours des sucettes.
 
 >C'était Liége contre Anderlecht. Liége a perdu 3-0. *Lucette etait toute contente car son club preferee avait gagné.
+
+C'était alors qu'Hector demanda une sucette à Ginette, la soeur de Lucette. Elle lui en donna une avec le sourire tel kangourou en renault Kangoo.

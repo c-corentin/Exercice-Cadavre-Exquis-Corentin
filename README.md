@@ -16,3 +16,5 @@
 >Tous ça pour un match de **foot**! il avait passé sa soirée à boire devant le bar de mamy *lucette*. 
 
 >*Lucette* lui distribue toujours des sucettes.
+
+>C'était Liége contre Anderlecht. Liége a perdu 3-0. *Lucette etait toute contente car son club preferee avait gagné.
